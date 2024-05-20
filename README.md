@@ -1,1 +1,1 @@
-# Software-X
+![screencapture-amazing-taffy-0bc1cb-netlify-app-2024-05-20-23_35_02](https://github.com/Nur-Adnan/Software-X/assets/56475820/586d6328-f166-4be2-9b97-8660b8a22762)[Uploading screencapture-amazing-taffy-0bc1cb-netlify-app-2024-05-20-23_35_02.png…]()
